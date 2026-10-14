@@ -61,3 +61,4 @@ But how do you know if it's right? Maybe you should try thinking about your life
 ![A woman walks alone on a quiet, tree-lined path in a green park.](https://user-images.rightblogger.com/ai/088adff5-93f0-4958-979b-80fd9acf65cb/woman-reflecting-park-path-e288dcea.jpg)
 
 What would your life look like if you got back with your ex? Or if you didn't. Think about which situation you'd rather be in. Sometimes it's worth it. If you both learned from your mistakes and became better people it could be worth a second chance. But if you feel like you always go back to that person and nothing changes. You may want to think about why you keep going back. These are some questions you should ask yourself before going back to your ex. There will be some situations where it's the right decision. But you don't want to rush into things.
+[Visit the Clearer Connections homepage](https://clearerconnections.com/)
